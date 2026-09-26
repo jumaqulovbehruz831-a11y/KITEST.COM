@@ -1,2 +1,2 @@
-# KIRAUZ
-PERFECT CHAT
+# KITEST
+O'z kelajakingni biz bilan qur
